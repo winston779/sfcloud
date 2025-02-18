@@ -1,6 +1,6 @@
 # SFcloud机场官网地址
 
-最新地址：[sfcloud.dev](https://www.sofastcloud.com/#/register?code=4hGLKAiF)
+最新地址：[sfcloud.dev](https://www.sfcloud2.cc/register?aff=4hGLKAiF)
 
 ## SFcloud介绍
 
